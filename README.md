@@ -20,6 +20,6 @@
 Apaixonado por Tecnologia, estou sempre em busca de conhecimento para crescer profissionalmente.
 
 ### Contatos
-E-mail: henriquelinhares@gmail.com
+E-mail: henriquelinharesjunqueira@gmail.com
 
 Whatsapp: (48) 991013293
